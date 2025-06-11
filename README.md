@@ -1,0 +1,1 @@
+# Adobe-Stock-2025-Trends-Generator-1
